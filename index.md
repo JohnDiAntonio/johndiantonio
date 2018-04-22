@@ -5,7 +5,7 @@
 layout: default
 ---
 
-John DiAntonio is a Colorado-based writer, director, and performer. His original scripts include Reading! And Other Superpowers, Harry the Great, MATH-stronaut, Suspended, Alice in the Bookstore Palace, ¡Viva Agua!, and Saving Red. His plays have been produced in Colorado, New Mexico, Kansas, Utah and New York City. His newest plays, I Love St. Lucia and Reading! And Other Superpowers, will be produced at Creede Repertory Theatre next summer.
+John DiAntonio is a Colorado-based writer, director, and performer. His original scripts include Reading! And Other Superpowers, Harry the Great, MATH-stronaut, Suspended, Alice in the Bookstore Palace, ¡Viva Agua!, and Saving Red. His plays have been produced in Colorado, New Mexico, Kansas, Utah and New York City. His newest plays, I Love St. Lucia and Reading! And Other Superpowers, was produced at Creede Repertory Theatre in the summary of 2016.
 
 John is the Associate Artistic Director of CRT. Some of his recent acting roles his the company include Guy in Good on Paper, Soapy Smith in Ghostlight, Dorante in The Liar, and Peter and Hal in Hope & Gravity. He also directed productions of The Geography of Adventure and ¡Viva Agua! as part of CRT’s Youth Outreach Audience Tour which brings theater to over 20,000 children in the Southwest each year.
 
